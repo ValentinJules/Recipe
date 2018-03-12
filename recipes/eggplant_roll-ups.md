@@ -1,7 +1,7 @@
 
 # Eggplant roll-ups stuffed with almond ricotta
 
-![here](http://www.icone-gif.com/gif/alimentation/aubergine/jegplant.gif)
+![here](egplant.gif)
 
 ## 1 ) Ingredients
 
