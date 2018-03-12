@@ -1,7 +1,7 @@
 
 # Eggplant roll-ups stuffed with almond ricotta
 
-![here](http://cf.foodista.com/content/fp/qtx45fxeu7qsj8ci.jpg)
+![here](http://www.icone-gif.com/gif/alimentation/aubergine/jegplant.gif)
 
 ## 1 ) Ingredients
 
@@ -17,6 +17,7 @@
 - Sea salt and freshly ground black pepper to taste
 - Parmigiano-Reggiano cheese
 
+![here](http://cf.foodista.com/content/fp/qtx45fxeu7qsj8ci.jpg)
 
 ## 2 ) Recipe
 
@@ -45,7 +46,7 @@ Follow this fucking instructions igo:
 
 You can find a youtube video [here](https://www.youtube.com/watch?v=aLpru3FYupc)
 
-![here](./../../../IMG_0550.JPG)
 
-For more recepes go on my facebook page : [here](https://www.facebook.com/michel.dabrov), or on instagram [here](https://www.instagram.com/dabrovmichel/)
+
+For more recipes go on my facebook page : [here](https://www.facebook.com/michel.dabrov), or on instagram [here](https://www.instagram.com/dabrovmichel/)
 
